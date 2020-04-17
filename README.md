@@ -1,1 +1,1 @@
-# Individual-Project---PART-A-1-
+# Individual Project (part A)
